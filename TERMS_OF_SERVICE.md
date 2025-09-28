@@ -65,7 +65,7 @@ We reserve the right to terminate or suspend your access to the app at any time,
 
 ## Contact Us
 
-If you have any questions or concerns about these Terms of Service, please contact us at [contigo.sanmarcos2024@gmail.com](mailto:contigo.sanmarcos2024@gmail.com).
+If you have any questions or concerns about these Terms of Service, please contact us at [peruanista.pe@gmail.com](mailto:peruanista.pe@gmail.com).
 
 ---
 
