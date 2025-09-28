@@ -69,4 +69,4 @@ If you have any questions or concerns about these Terms of Service, please conta
 
 ---
 
-Last updated: Thursday 29 Aug 2024
+Last updated: September 28th, 2025
