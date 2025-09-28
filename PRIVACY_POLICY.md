@@ -64,4 +64,4 @@ If you have any questions about this Privacy Policy, please contact us at [perua
 
 ---
 
-Last updated: Tuesday 13 Oct 2024
+Last updated: September 28th, 2025
